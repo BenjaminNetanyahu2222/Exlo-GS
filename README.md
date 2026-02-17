@@ -1,6 +1,1 @@
-# What is this skidded code, Tzyson?
-
-Go clown these people: discord.gg/exlo.
-
-Sincerely, 
-Prime Minister Benjamin Netanyahu
+hello im the exposer im gay and a fat retard
